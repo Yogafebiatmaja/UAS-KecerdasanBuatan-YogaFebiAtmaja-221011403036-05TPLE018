@@ -1,0 +1,1 @@
+# UAS-KecerdasanBuatan-YogaFebiAtmaja-221011403036-05TPLE018
